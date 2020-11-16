@@ -1,0 +1,2 @@
+# beginner
+trying to learn 
